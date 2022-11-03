@@ -1,5 +1,5 @@
 
-THE FUTURITY
+# THE FUTURITY
 
 We joined the fashion industry
 
